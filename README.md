@@ -37,7 +37,7 @@ Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/riya-shai
 
 ## Fun Fact
 
-When I'm not coding, you can find me enjoying movies, exploring new places, or getting creative with crafts.
+When I'm not coding, you can find me enjoying movies🎬, exploring new places🏕️, or getting creative with crafts🎨.
 
 ---
 
